@@ -22,6 +22,4 @@ But yes, love, you're giving me the love that I used to have from my mom, and th
 <p> </p>
 <br/>
 <p> </p>
-		<p><h5>From your number 1 fan,<br/><h6>Fayi</h6> </p>
-	</body>
-</html>
+		<p><h5>From your number 1 fan,<br/><h6>Fayi</h6>
