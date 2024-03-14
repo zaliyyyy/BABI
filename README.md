@@ -15,7 +15,7 @@ But yes, love, you're giving me the love that I used to have from my mom, and th
 
 		<p><h5>I super admire you for being so independent ever since and for knowing what you really want in life and sticking with it. You inspire me every day, babi. I also love how you choose the energy and confidence that you want from someone to embody (like ekson's confidence when it comes to fashion), that is so great! Really great urghhh 😖</h5></p>
 
-		<p><h5>Just staying up super late watching cheesy movies and eating junk food until we fell asleep on the bed is super cute for me. Those are the moments I cherish the most, just being with you, doing nothing special but feeling like the luckiest person in the world. You bring so much joy and laughter into my life, and I can't wait to create even more beautiful memories with you ughhh I'll see you very soon babi. Love you endlessly!</h5></p>
+		<p><h5>Us, staying up super late watching cheesy movies and eating junk food until we fall asleep on the bed is super cute for me. Those are the moments I cherish the most, just being with you, doing nothing special but feeling like the luckiest person in the world. You bring so much joy and laughter into my life, and I can't wait to create even more beautiful memories with you ughhh I'll see you very soon babi. Love you endlessly!</h5></p>
 
 		<p><h5>And I'm so lucky I get to share your time and love with you. You make every moment special and memorable. Keep being You, love. I'm always here to support you every step of the way. I gotchu always. Happy birthday again, baby! I miss you so much, huhu. Here's to many more birthdays with you! Cheers! 🥂✨</h5></p>
 
